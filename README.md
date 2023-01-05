@@ -14,3 +14,10 @@
 - ドラゴンボール超　スーパーヒーロー
 - トップガンマーヴェリック
 
+
+## 好きなゲーム
+
+- APEX
+- Overwatch2
+- Yu-Gi-Oh Master Duel
+
